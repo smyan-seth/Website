@@ -1,1 +1,1 @@
-Visit my website here -> https://smyan-seth.github.io/Website/
+Visit my website here -> https://smyan-seth.github.io/website/
